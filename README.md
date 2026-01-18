@@ -36,10 +36,8 @@ Estou sempre buscando aprender, criar e melhorar processos usando tecnologia.
 
 ## 📫 Contato
 
-- 📧 Email: seuemail@email.com  
-- 💼 LinkedIn: https://linkedin.com/in/seu-perfil  
-- 🌐 Portfólio: (em breve)
+- 📧 Email: daknuth@hotmail.com  
+- 💼 LinkedIn: https://linkedin.com/in/daniel-ak 
 
----
 
-⭐ *“Transformando ideias em soluções digitais.”*
+“Do Hardware à IA: Conectando experiência bancária e inovação.”
