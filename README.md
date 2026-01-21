@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou Ralf!
+# 👋 Bem vindo, eu sou o RALF-AKs!!!
 
 💼 Economiário | 💻 Estudante de TI | ♠️ Desenvolvedor Web | 🤖 Criador da SocIA
 
